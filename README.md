@@ -1,5 +1,5 @@
-# Just a novice developer
-### (EDUTECH)
+# Jᥙ᥉t ᥲ N᥆᥎ιᥴᥱ Dᥱ᥎ᥱᥣ᥆ρᥱr
+### (ᕮᗞᑌTᕮᑕᕼ)
 ### COLÉGIO ESTADUAL SAGRADA FAMÍLIA
 #### RUAN ANTUNES MOREIRA
 - I’m @Mellobrie
