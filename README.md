@@ -3,7 +3,7 @@
 ### COLÉGIO ESTADUAL SAGRADA FAMÍLIA
 #### RUAN ANTUNES MOREIRA
 - I’m @Mellobrie
-- My email is antunes.moreira@escola.pr.gov.br
+- My email is ruan.antunes.moreira@gmail.com
 - I'm from Brazil 🇧🇷
 - 💞️ for now just a student and pixel art creator
 
