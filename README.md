@@ -1,6 +1,5 @@
 # 𝙅𝙪𝙨𝙩 𝙖 𝙉𝙤𝙫𝙞𝙘𝙚 𝘿𝙚𝙫𝙚𝙡𝙤𝙥𝙚𝙧
 ### (ᕮᗞᑌTᕮᑕᕼ)
-### COLÉGIO ESTADUAL SAGRADA FAMÍLIA
 #### RUAN ANTUNES MOREIRA
 - I’m @Mellobrie
 - My email is ruan.antunes.moreira@gmail.com
